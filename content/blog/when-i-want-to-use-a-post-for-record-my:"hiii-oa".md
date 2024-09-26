@@ -4,12 +4,13 @@ date: 2024-09-26T03:42:23.347Z
 ---
 
 
+
 and i failed   
 bc i am so stupid  
 so stupid for why i am here.  
 bro ...........  
 hiii, this is i forgot my name, i am so happy here to let you see my i dont know what i am doing, but i am cute :3   
-  
+
 
 ok, seriously begin:  
 today i received a OA invitation and i am so excited because this OA they say is really hard and only very small numbers of people get this OA and this company is really hard to get in but you know this means this company has many many talented people. i am/was so excited for this and i means i really want to treat this opportunity seriously.  
@@ -19,3 +20,7 @@ really i love this company at least the first see.
   
 
 okok lets enter more direct part:
+i need to prepare for OA, but i want to playfully put my ideas or thoughts here in unorganized way. i dont really care if this will cause only myself know what i am doing hehe. you know it just fun :3
+
+
+
