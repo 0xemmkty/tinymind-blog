@@ -5,6 +5,7 @@ date: 2024-09-27T01:48:29.832Z
 
 
 
+
 hii
 9.26
 ![20240926203628.png](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727401046663.png?raw=true)  
@@ -29,4 +30,4 @@ he: ![2.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2
 ![3.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404407798.jpg?raw=true)  
 ![4.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404416398.jpg?raw=true)
 beautiful and very brave.  
-if you dont even do not need any return from a person when you help them, then there is nothing can hurt you. 
+if you dont even do not need any return from a person when you help them, then there is nothing can hurt you. even though you know they will hate you, but you also know at least i try, so there is nothing to regret
