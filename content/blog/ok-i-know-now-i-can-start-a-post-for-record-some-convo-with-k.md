@@ -4,6 +4,7 @@ date: 2024-09-27T01:48:29.832Z
 ---
 
 
+
 hii
 9.26
 ![20240926203628.png](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727401046663.png?raw=true)  
@@ -22,5 +23,10 @@ also, i am not say this "change" is not good, youk life is a long journey, maybe
 someone says to me in the past, do not meddle in other people's destinies, bc first, probably they do not like you do this, they maybe hate you if you do this, not all people can tolerant this. second, you cant change others cause and result and it will probably get you involved in sth you should avoid, it maybe does harm to you. Third, why do this? you cant change anything and you know meddle in others destiny will waste your energy.  
 From this perspective, only stupid people try to care abt others life, others cause and results. Thats so sad, i am stupid.   
   
-I really love one day my convo with a person. i asked him, if you know you cant change anything and if you say this people will get annoyed at you, so why you still choose to give others suggestion?
-
+I really love one day my convo with a person. i asked him, if you know you cant change anything and if you say this people will get annoyed at you, so why you still choose to give others suggestion?  
+me: ![1.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404379601.jpg?raw=true)  
+he: ![2.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404398375.jpg?raw=true)  
+![3.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404407798.jpg?raw=true)  
+![4.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404416398.jpg?raw=true)
+beautiful and very brave.  
+if you dont even do not need any return from a person when you help them, then there is nothing can hurt you. 
