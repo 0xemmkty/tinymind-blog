@@ -4,9 +4,6 @@ date: 2024-09-27T01:48:29.832Z
 ---
 
 
-
-
-
 hii
 9.26
 ![20240926203628.png](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727401046663.png?raw=true)  
@@ -19,7 +16,11 @@ i am thinking abt: do you think i use "stupid" is wrong or too mean? emmm i try 
 i dont know, i do not feel angry or sth, i just feel sad. too see a person become like this is really sad .....  
 i am so sad .... i am so sad ... i promise i do not think you are stupid or want to express you are stupid .... i just want to i dont know ... how can i make you aware sth in your life ...   
 sad and feel like yes i cant do anything ... i already know this day will come but when it truly come still feel sad ... but yes anyway this is always bad things, transition in a person's life will have many period, but just this period is almost most 'terrible' one for me to stand.  
-so, i choose to leave. i think i only want to leave for short time but idk, this depends on the future.  
+so, i choose to leave. i think i only want to leave for short time but idk, this depends on the future.    
+also, i am not say this "change" is not good, youk life is a long journey, maybe only this change can cause next change and then cause next change. we cant deny every "change", bc change, at least is changing, changing means hope and new.
   
-someone says to me in the past, 
+someone says to me in the past, do not meddle in other people's destinies, bc first, probably they do not like you do this, they maybe hate you if you do this, not all people can tolerant this. second, you cant change others cause and result and it will probably get you involved in sth you should avoid, it maybe does harm to you. Third, why do this? you cant change anything and you know meddle in others destiny will waste your energy.  
+From this perspective, only stupid people try to care abt others life, others cause and results. Thats so sad, i am stupid.   
+  
+I really love one day my convo with a person. i asked him, if you know you cant change anything and if you say this people will get annoyed at you, so why you still choose to give others suggestion?
 
