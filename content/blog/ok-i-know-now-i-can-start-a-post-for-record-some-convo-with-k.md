@@ -6,6 +6,7 @@ date: 2024-09-27T01:48:29.832Z
 
 
 
+
 hii
 9.26
 ![20240926203628.png](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727401046663.png?raw=true)  
@@ -30,4 +31,6 @@ he: ![2.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2
 ![3.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404407798.jpg?raw=true)  
 ![4.jpg](https://github.com/0xemmkty/tinymind-blog/blob/main/assets/images/2024-09-27/1727404416398.jpg?raw=true)
 beautiful and very brave.  
-if you dont even do not need any return from a person when you help them, then there is nothing can hurt you. even though you know they will hate you, but you also know at least i try, so there is nothing to regret
+if you dont even do not need any return from a person when you help them, then there is nothing can hurt you. even though you know they will hate you, but you also know at least i try, so there is nothing to regret. and maybe they despise everything you say today, but what you say may pop into their heads one day five or ten years from now as one more option. And that's enough. There's nothing to be upset about when we're not in a hurry, when we don't hold out any hope of changing others, and when we just assume that we're just doing what we think is right. ok this part enough.  
+  
+Today is 9.26, i did a thing i never regret. because i know the result before i did this thing, but i still want to try it and i tried, i did a thing i thought is correct in my mind. so there is nothing to regret. 
