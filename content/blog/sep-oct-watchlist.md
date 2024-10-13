@@ -11,6 +11,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -24,7 +25,7 @@ date: 2024-09-28T05:08:34.062Z
   
 ### Reading  
 **1** Must We Burn Sade?  (10.11, review: boring, i mean Beauvoir‘s writing was such boring lmao I don't like analytical essays without logic :3 especially when the content is still a pile of shit)    
-**2** 浮游-王建国 (10.12, review: waaaaaaaaaaaaaaaaa a very implicit fiction abt father-son love ........ writing is good !!!! good enough to let me cant really understand but willing to try)
+**2** 浮游-王建国 (10.12, review: waaaaaaaaaaaaaaaaa a very implicit fiction abt father-son love ........ writing is good !!!! good enough to let me cant really understand but willing to try)  
  **3**  Elon Musk (10.13, review: very good! i did not have any impression of Musk before i read this and i heard abt many people hate him, but i should admit that he was/is very cool and interesting perople and definitely deserved learn from and respect!!)
   
   
