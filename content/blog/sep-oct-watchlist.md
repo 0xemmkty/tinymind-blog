@@ -9,6 +9,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -21,7 +22,8 @@ date: 2024-09-28T05:08:34.062Z
 **9**慕总终于靠娃上位了(10.10)   
   
 ### Reading  
-**1** Must We Burn Sade?  (10.11, review: boring, i mean Beauvoir‘s writing was such boring lmao I don't like analytical essays without logic :3 especially when the content is still a pile of shit)  
+**1** Must We Burn Sade?  (10.11, review: boring, i mean Beauvoir‘s writing was such boring lmao I don't like analytical essays without logic :3 especially when the content is still a pile of shit)    
+**2** 浮游-王建国 (10.12, review: waaaaaaaaaaaaaaaaa a very implicit fiction abt father-son love ........ writing is good !!!! good enough to let me cant really understand but willing to try)
   
   
   
