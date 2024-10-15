@@ -5,6 +5,7 @@ date: 2024-10-12T03:14:28.009Z
 
 
 
+
 HI  
 TBC  
 :3
@@ -20,4 +21,14 @@ TBC
 > i am an stupid idiot!!  
 
   
-hi.
+hi.   
+10.11  
+i read someone's post today which is(was) really meaningful for me.  
+it do(did) really change my recent life forcus or say it affirms my recent thoughts ... about underlying principles, first Principles, the essential logic of things, and why I think i've made a big mistake these last few years by rushing into things
+I wasn't cool and calm and thoughtful enough. not analyzing the big picture enough. Falling into the trap of impatience and never think twice.
+  
+  
+  
+   
+10.15  
+i read a another person's post today, and i still have many thoughts abt this part and I'm inspired and encouraged by them.
