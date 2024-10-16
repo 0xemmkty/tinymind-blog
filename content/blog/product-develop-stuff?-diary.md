@@ -1,5 +1,5 @@
 ---
-title: Product Develop Stuff? diary
+title: Product Develop Stuff -> diary
 date: 2024-10-08T22:14:55.709Z
 ---
 
