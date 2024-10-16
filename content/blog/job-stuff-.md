@@ -4,6 +4,7 @@ date: 2024-10-12T02:40:15.177Z
 ---
 
 
+
 you know, finding job is boring.  
 but you know, finding job can also be fun  
 you know why this thing should be ugly  
@@ -13,13 +14,14 @@ you know we can meet in this world
 
 ### OA
 **1** palantir 
-**2**zip recruiter
+**2**zip recruiter (✓)
 **3** belvedere
-**4**uber
-**5**Akuna Capital
+**4**uber X 2 (expire, i forgot)
+**5**Akuna Capital  
+**6** SIG
 
 
   
-### Phone Call   
+### Phone Call / interview
 **1** UWM (i ignore :3)
 **2** Sky City Data
