@@ -14,6 +14,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -30,7 +31,7 @@ date: 2024-09-28T05:08:34.062Z
 **2** 浮游-王建国 (10.12, review: waaaaaaaaaaaaaaaaa a very implicit fiction abt father-son love ........ writing is good !!!! good enough to let me cant really understand but willing to try)  
  **3**  Elon Musk (10.13, review: very good! i did not have any impression of Musk before i read this and i heard abt many people hate him, but i should admit that he was/is very cool and interesting perople and definitely deserved learn from and respect!!)  
 **4** The Vegetarian (10.14, review: I can't stand why the Nobel Prize for Literature always has to be about reality and society, an emphasis that happens to be distasteful and ironic to me. I hate any form of attention-getting and sympathy-grabbing sorry)  
-see https://tinymind.me/blog/i-think-the-nobel-prize-for-literature-is-a-piece-of-shit.-i-confess
+see https://tinymind.me/0xemmkty/blog/i-think-the-nobel-prize-for-literature-is-a-piece-of-shit.-i-confess
   
   
  
