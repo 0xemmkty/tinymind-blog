@@ -6,6 +6,7 @@ date: 2024-10-16T22:28:54.587Z
 
 
 
+
 hi now is 5:20pm(CT) i have a interview tomorrow morning but you know i never ever try anything related to data analyst before and i never know why they give me a zoom link to interview thats funny. ok never mind. Let's begin!!! here i will show you how to use chatgpt and my nonsense talktive brain to prepare for tomorrow.    
 i dont really intersted in this job since it is hybrid i hate onsite but anyway its fun to try i extremely appreciate it do not have too many tickle question before interview i like this!
    
@@ -136,4 +137,10 @@ Remove Duplicates: Use drop_duplicates() to clean duplicate rows.
 Fix Date Formats: Convert dates to a consistent format using to_datetime().
 Standardize Text Data: Replace inconsistent entries (like country codes) with standardized values.
 Final Clean Data: Now you have a clean dataset ready for analysis.
-```
+```  
+  
+### 10.17 update  
+they did not ask my data experience before only ask sde experience  
+ok  
+interview is cute. only one embarassed thing was i dont know how to answer compensation part.  
+i means i only want new things for fun do not really care this lol this is true when i feel the job is not interesing for me i will just quit so 
