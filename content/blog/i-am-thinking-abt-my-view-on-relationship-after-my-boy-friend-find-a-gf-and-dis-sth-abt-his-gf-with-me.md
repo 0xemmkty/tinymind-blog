@@ -3,6 +3,24 @@ title: I am Thinking abt My view on relationship after my boy friend find a gf a
 date: 2024-10-12T03:33:36.338Z
 ---
 
+
 TBC  
 ....  
-:3
+:3  
+#### 10.11   
+  
+  
+#### 10.17
+he texted to me today
+context:  
+he: gf complaint me had too few experience intimate with girls  
+he: ??? i should fuck more girls in her eyes? to gain more experience? in that case she will be more unhappy i bet this is true.... cant understand girls ...
+
+and my thought:   
+bro ...............
+if i were you ...........
+i definitly never ever meet / talk to this kind of people no matter gender .......  
+  
+really, i think this is self value stuff.  
+he asked me what's wrong he did, i say too low self value, too like a dog to your gf ....  
+(here i dont want to agrue that in what kind of situation become dog is cute, and in what kind of situaton become dog is totally stupid)  
