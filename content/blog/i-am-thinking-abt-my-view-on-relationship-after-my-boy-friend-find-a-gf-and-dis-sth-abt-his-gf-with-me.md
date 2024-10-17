@@ -5,6 +5,7 @@ date: 2024-10-12T03:33:36.338Z
 
 
 
+
 TBC  
 ....  
 :3  
@@ -27,4 +28,6 @@ he asked me what's wrong he did, i say too low self value, too like a dog to you
 (here i dont want to agrue that in what kind of situation become dog is cute, and in what kind of situaton become dog is totally stupid)    
   
 ***sorry, i cant understand why people like to have this kind of relationship and called it romantic relationship***  
-***kill me please***
+***kill me please***  
+"can you give me some suggestions for my relationship?"  
+"you are too like a dog in your relationship ..... bro ...."
