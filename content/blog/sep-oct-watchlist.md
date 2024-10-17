@@ -15,6 +15,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -36,4 +37,6 @@ see https://tinymind.me/0xemmkty/blog/i-think-the-nobel-prize-for-literature-is-
   
  
 ### Manga
-**1** (re read) あなたを杀す旅  (10.11, waaaaaaa this is art piece crying crying crying i love i love i love ajslkalfkhflakf;ak;asffa GOD!!!!!!!)
+**1** (re read) あなたを杀す旅  (10.11, waaaaaaa this is art piece crying crying crying i love i love i love ajslkalfkhflakf;ak;asffa GOD!!!!!!!)  
+Inu Yasha
+kikyo kagome
