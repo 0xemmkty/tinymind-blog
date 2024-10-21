@@ -7,6 +7,7 @@ date: 2024-10-21T17:42:09.380Z
 
 
 
+
 :3  
 do not have time to finish now, some note:
 - spiritual and material needs  (or say pursit for emotion or power ) why people in opposite position
@@ -17,4 +18,5 @@ do not have time to finish now, some note:
 
 what i want to express is to understand different people's position and perspective to enrich cognition  
   
-science ignore human, but what if this is on purpose? my goal is to iignore human factor so what? 
+science ignore human, but what if this is on purpose? our goal is to ignore human factor so what?   
+Apathy of people under capitalism? Femininity doesn't fit into this society? Is it possible that just because emotionally deficient people don't have the means to devote themselves to their work without distraction, they criticize their environment.
