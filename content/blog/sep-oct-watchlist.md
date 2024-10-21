@@ -18,6 +18,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -42,4 +43,7 @@ see https://tinymind.me/0xemmkty/blog/i-think-the-nobel-prize-for-literature-is-
 **1** (re read) あなたを杀す旅  (10.11, waaaaaaa this is art piece crying crying crying i love i love i love ajslkalfkhflakf;ak;asffa GOD!!!!!!!)  
 
 **2** Inu Yasha(犬夜叉) vol1 (10.17)  first watch anime at my 9-10 yo , i remember kikyo and kagome these two characters. and i remember i had a extremely strong opinion with someone irl and we share some opinion and agrue with peoples online.   
-- **"what i hate is not she 'stole' your lover, what I hate is she wants to exist in your place."**
+- **"what i hate is not she 'stole' your lover, what I hate is she wants to exist in your place."**  
+  **3** maodao zushi (10.20, review: i love how every character have their own life and their positon)
+- ** “I’ve lied to countless people and have destroyed countless more. Just as you’ve said, murdering my father, my brother, my wife, my son, my master, my friends. There’s not a single sin left in this world that I haven’t committed! But you, only you, I’ve never ever wanted to harm you!”**  
+- **“I can't help it. To seek pity even after doing all the bad things— that's the kind of person I am.”**
