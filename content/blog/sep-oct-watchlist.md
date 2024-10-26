@@ -20,6 +20,7 @@ date: 2024-09-28T05:08:34.062Z
 
 
 
+
 ### Movie:   
 **1** The Bad Seed(9.28)，  
 **2** Successor(10.4-5),   
@@ -29,8 +30,9 @@ date: 2024-09-28T05:08:34.062Z
 **6**去有你的地方 2 (10.9)  
 **7**Never Look Away (10.9, German: Werk ohne Autor, 无主之作)   
 **8**intouchables (10.10, very good film for make reflection abt left (wing), sympathy, the weak,  stuff .. etc)  
-**9**慕总终于靠娃上位了(10.10)   
-**10** Dead Poets Society (10.25) beautiful, incredible beautiful! i am crying, I LOVE THIS!
+**9**慕总终于靠娃上位了(10.10)     
+**10** The Professional (这个杀手不太冷) （10.24）  
+**11** Dead Poets Society (10.25) beautiful, incredible beautiful! i am crying, I LOVE THIS!
   
 ### Reading  
 **1** Must We Burn Sade?  (10.11, review: boring, i mean Beauvoir‘s writing was such boring lmao I don't like analytical essays without logic :3 especially when the content is still a pile of shit)    
