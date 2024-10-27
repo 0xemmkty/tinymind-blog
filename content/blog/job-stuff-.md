@@ -6,6 +6,7 @@ date: 2024-10-12T02:40:15.177Z
 
 
 
+
 you know, finding job is boring.  
 but you know, finding job can also be fun  
 you know why this thing should be ugly  
@@ -21,7 +22,8 @@ you know we can meet in this world
 **5**Akuna Capital  
 **6** SIG  
 **7** LSEG  
-**8** optive
+**8** optive  
+**9** IBM
 
 
   
