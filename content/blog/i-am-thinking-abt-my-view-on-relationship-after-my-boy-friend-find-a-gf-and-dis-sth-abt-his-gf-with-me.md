@@ -6,6 +6,7 @@ date: 2024-10-12T03:33:36.338Z
 
 
 
+
 TBC  
 ....  
 :3  
@@ -30,4 +31,13 @@ he asked me what's wrong he did, i say too low self value, too like a dog to you
 ***sorry, i cant understand why people like to have this kind of relationship and called it romantic relationship***  
 ***kill me please***  
 "can you give me some suggestions for my relationship?"  
-"you are too like a dog in your relationship ..... bro ...."
+"you are too like a dog in your relationship ..... bro ...."  
+  
+  
+#### 10.28
+now is 12:55 am and i wanna go sleep but this friend message me for helping him solve he and his gf stuff ..............
+bro ............................
+i hate people so fucking into romantic love ..............
+bro ...........
+let me sleep .........................
+sad
