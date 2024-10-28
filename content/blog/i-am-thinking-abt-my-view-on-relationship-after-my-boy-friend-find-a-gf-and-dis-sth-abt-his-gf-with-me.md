@@ -7,6 +7,7 @@ date: 2024-10-12T03:33:36.338Z
 
 
 
+
 TBC  
 ....  
 :3  
@@ -41,3 +42,7 @@ i hate people so fucking into romantic love ..............
 bro ...........
 let me sleep .........................
 sad
+  
+"can you give me some advice???? crying ...."  
+"emmmm ... change a gf ......?"   
+"you .............."
