@@ -8,6 +8,7 @@ date: 2024-10-12T03:33:36.338Z
 
 
 
+
 TBC  
 ....  
 :3  
@@ -45,4 +46,9 @@ sad
   
 "can you give me some advice???? crying ...."  
 "emmmm ... change a gf ......?"   
-"you .............."
+"you .............."  
+  
+10.28 morning:  
+  
+10.28 night:  
+  
