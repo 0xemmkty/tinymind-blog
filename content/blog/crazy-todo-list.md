@@ -4,6 +4,7 @@ date: 2024-10-30T03:39:46.145Z
 ---
 
 
+
 hehe  
     
 leetcode: https://docs.google.com/spreadsheets/d/1pnI8HmSMPcfwrCCu7wYETCXaKDig4VucZDpcjVRuYrE/htmlview?pli=1#    
@@ -11,13 +12,13 @@ leetcode: https://docs.google.com/spreadsheets/d/1pnI8HmSMPcfwrCCu7wYETCXaKDig4V
 书: 献给阿尔吉侬的花束，罪与罚，卡拉马佐夫兄弟，地下室手记，群魔
 
 ### 10.30  
-- system design 01
+- ~~system design 01~~
 - leetcode (0/8)
 ### 10.31
-- system design 02
+- ~~system design 02~~
 - leetcode (0/8)
 ### 11.1
-- system design 03
+- ~~system design 03~~
 - leetcode (0/8)
 ### 11.2
 - system design 04
