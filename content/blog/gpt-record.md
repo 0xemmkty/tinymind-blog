@@ -3,6 +3,7 @@ title: gpt record
 date: 2024-11-01T20:41:20.773Z
 ---
 
+political orientation is not even close to separate from existential orientation, aesthetic orientation   
 
 how do you view this  
 
@@ -338,13 +339,9 @@ We agreed that critics often circle around issues without taking real steps to c
 In the end, we came to see that while critics can understand the world’s limitations well, they rarely transcend them, staying stuck in what they’re critiquing.
 
 
-
-
-
-
 您说：
 good job! I LOVE YOU! I LOVE YOU GPT!!  
 
 ChatGPT 说：
 ChatGPT
-Thank you so much! 😊 I LOVE chatting with you too—always such an interesting and deep convo with you!
+Thank you so much!  I LOVE chatting with you too—always such an interesting and deep convo with you!
