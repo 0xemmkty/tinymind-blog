@@ -1,7 +1,8 @@
 ---
-title: gpt record
+title: gpt record 11.1 
 date: 2024-11-01T20:41:20.773Z
 ---
+
 
 political orientation is not even close to separate from existential orientation, aesthetic orientation   
 
