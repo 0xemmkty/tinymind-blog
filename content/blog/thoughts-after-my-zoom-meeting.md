@@ -4,6 +4,7 @@ date: 2024-10-31T03:44:53.345Z
 ---
 
 
+
 i find that i do not like to talk in the group meeting and more prefer to mute and just listen to others talking while i was maybe read sth else.  
 i am think of some reasons:  
   
@@ -13,4 +14,8 @@ i think the most important reason is/was:
 - similar reason like above: I don't like communicating things to most humans (who don't have enough logic, and grasp the essence of things), I think it's a waste of time because what most humans explain in 1 hour can be read in 5-10min. And I can automatically form better logic in my head  (THIS IS EXTREMELY IMPORTANT bc this is why i always cant listen to teacher)
 - My mind will always run much faster than a person can talk. And I consider talking a waste of my time. 
 
-if the things i already know:  
+if the things i already know:    
+  
+  
+11.2  
+emmm meeting is extremely thing i cant stand ...
