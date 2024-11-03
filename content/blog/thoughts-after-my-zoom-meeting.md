@@ -6,6 +6,7 @@ date: 2024-10-31T03:44:53.345Z
 
 
 
+
 i find that i do not like to talk in the group meeting and more prefer to mute and just listen to others talking while i was maybe read sth else.  
 i am think of some reasons:  
   
@@ -21,5 +22,5 @@ if the things i already know:
 11.2  
 emmm meeting is extremely thing i cant stand ...
 i cant understand human brain tbh .....  
-it is like, people ask we have 13 pages need to develop, and we(actually only me) can develop 2-3 pages each day, my inner thoughts: bro ... cant i finish these all in a week????  
+it is like, people ask we have 13 pages need to develop, and we(actually only me) can develop 2-3 pages each week, my inner thoughts: bro ... cant i finish these all in a week????  
 it is like i hate i hate daily task, i more prefer use extreme short day finish all LOL
