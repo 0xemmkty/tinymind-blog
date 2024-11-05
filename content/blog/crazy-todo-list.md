@@ -5,11 +5,14 @@ date: 2024-10-30T03:39:46.145Z
 
 
 
+
 hehe  
     
 leetcode: https://docs.google.com/spreadsheets/d/1pnI8HmSMPcfwrCCu7wYETCXaKDig4VucZDpcjVRuYrE/htmlview?pli=1#    
 待看小说: 酒与枪，天才基本法， 桃花债，犯罪心理，灰塔笔记，一银币一磅的恶魔，千里起解，洛希极限，穿堂惊掠琵琶声，六州歌头，凤下空，红尘有幸识丹青 ，散落星河的记忆 
-书: 献给阿尔吉侬的花束，罪与罚，卡拉马佐夫兄弟，地下室手记，群魔
+书: 献给阿尔吉侬的花束，罪与罚，卡拉马佐夫兄弟，地下室手记，群魔  
+  
+String Theory, Quantum Mechanics, Mathematical Analysis, Game Theory, Operations Research
 
 ### 10.30  
 - ~~system design 01~~
